@@ -16,5 +16,5 @@ Hi, I'm Abhinav 👋
 🏫 BVoc Student at Thakur College of Engineering & Technology
 
 📫 Connect with me:
-LinkedIn: [your link]
-Email: your email
+LinkedIn: linkedin.com/in/abhinav-choudhary-290a58272
+Email: cabhinav079@gmail.com
